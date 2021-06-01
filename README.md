@@ -1,1 +1,1 @@
-# promotejournal.github.io
+Promote your journal here!
