@@ -1,1 +1,0 @@
-Promote your journal here!
